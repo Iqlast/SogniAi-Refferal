@@ -2,6 +2,8 @@ Refferal for  https://app.sogni.ai
 
 FOR SALE REFFERAL 
 
+1 REFFERAL $ 0.3
+
 if you want to buy please dm me 
 https://t.me/Iqlssfor
 
